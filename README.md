@@ -1,1 +1,1 @@
-# SMPN-20-Konawe-Selatan
+# SMPN-20-Konawe-Selatan.
